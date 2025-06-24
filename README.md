@@ -1,7 +1,8 @@
 <h2>yymanhua官方网站 - 日本漫画在线阅读第一站|最新网址|打不开|下载</h2>
 <p>YYManhua是一个专注于日本漫画的在线阅读平台，以其丰富的漫画资源和便捷的用户体验深受漫画爱好者喜爱。该网站汇集了来自日本的热门漫画作品，包括《鬼灭之刃》、《一拳超人246》、《海贼王1106》、《火影忍者》、《死神》等经典IP，同时也有许多新锐作品供读者选择。YYManhua的页面设计简洁直观，无论是资深漫迷还是新手用户都能轻松上手，快速找到自己喜欢的内容。</p>
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/15730.html" target="_blank"><strong>yymanhua最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/dongmanerciyuan" target="_blank"><strong>在线看动漫/漫画导航网站大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
